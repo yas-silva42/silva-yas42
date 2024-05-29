@@ -10,5 +10,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 @alurastartestudante
 
-![](https://www.google.com.br/url?sa=i&url=https%3A%2F%2Fthirstymag.com%2Fei-ola-transparente-GIF-animado-em-GIFER-de-Zulkit-369370.html&psig=AOvVaw2odnbtQ-Bdp7wNK0SfChZm&ust=1717068020964000&source=images&cd=vfe&opi=89978449&ved=0CA8QjRxqFwoTCJicx__esoYDFQAAAAAdAAAAABAR)
 
